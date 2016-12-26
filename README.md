@@ -1,0 +1,1 @@
+# NewariTranslator-Bot-for-Telegram-
